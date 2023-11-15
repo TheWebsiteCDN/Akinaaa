@@ -1,0 +1,2 @@
+# Akinaaa
+Tugas Informatika
